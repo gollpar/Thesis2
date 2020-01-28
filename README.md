@@ -1,12 +1,4 @@
-#### 1/21/2020
-
-#### A conversation for objects, Moving mouments
-
-How do citizens create collective memory instead of being force-fed it?
-
-
-
-#### 1/27/2020
+#### Week 1
 
 Globalization, natural disaster, and war have made humans to be in a constant move all over the planet; moving from their houses, believes, and relationships.
 Our lives are in such a fast pace, there is no time for distractions, so how can we hold on to thoughts without carrying them all the time? We do that with objects, we do not always carry them but we still have them. How can we do that with thoughts? 
@@ -22,3 +14,12 @@ Imagining a world that people do not have to carry their thoughts, instead they 
 
 But why objects? Objects are a good way to unload and store thoughts & identity because they don’t require visas! they are truly portable.
 Keywords: # Objects as citizens # World citizen # monuments
+
+
+
+#### Week 0 
+
+#### A conversation for objects, Moving mouments
+
+How do citizens create collective memory instead of being force-fed it?
+
