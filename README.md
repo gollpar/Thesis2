@@ -1,3 +1,11 @@
+#### 1/21/2020
+
+#### A conversation for objects, Moving mouments
+
+How do citizens create collective memory instead of being force-fed it?
+
+
+
 #### 1/27/2020
 
 Globalization, natural disaster, and war have made humans to be in a constant move all over the planet; moving from their houses, believes, and relationships.
